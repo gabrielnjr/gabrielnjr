@@ -1,4 +1,4 @@
-## oi, eu sou gabriel 🔥
+## Oii, Eu sou Gabriel 🔥
 Eu sou estudante do ensino médio José marcelino de Almeida
 
 Minhas principais atividades no Github são:
